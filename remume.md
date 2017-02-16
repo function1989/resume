@@ -1,5 +1,5 @@
 
-## <center>周宇浩-浙江大学-百度-Android开发</center>
+## <center>周宇浩-浙江大学</center>
 
 ---
 
